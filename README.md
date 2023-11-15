@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **CeH ,python, linux**
 
-- 📫 How to reach me **Nehalkalbande430@gmail.com**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
